@@ -81,4 +81,3 @@ Soheil Gityforoze
 
 sg3956@columbia.edu
 
-[LinkedIn](https://www.linkedin.com/feed/)
